@@ -1,3 +1,4 @@
+> sorry check old readme firstb.. im still making this
 <div align=center />
 
   ![view counter](https://komarev.com/ghpvc/?username=strawbrrycream&color=A84444&style=flat&label=🎁)
