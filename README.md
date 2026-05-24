@@ -1,4 +1,4 @@
-> i am a liar i will never work on this again  unless i completely change it
+> i am a full time student taking important exams ! please be patient
 <div align=center />
 
   ![view counter](https://komarev.com/ghpvc/?username=strawbrrycream&color=A84444&style=flat&label=🎁)
