@@ -1,4 +1,4 @@
-> i am a full time student taking important exams ! please be patient | i will remak @fox 's rentry ok idk wher graphic run off to
+> i am a full time student taking important exams ! please be patient
 <div align=center />
 
   ![view counter](https://komarev.com/ghpvc/?username=strawbrrycream&color=A84444&style=flat&label=🎁)
