@@ -10,7 +10,7 @@
   <br/> : ̗̀➛ **all** . any prns
   <br/> c*h _unless_ dni . dncopy . <ins>covercomf</ins>
   <br/> basic dni + pro/dark shiprs
-  <br/> [ata](https://essvee.atabook.org/) | [github readme guide](https://docs.google.com/document/d/1v4RCIapGyuL-95DgdUr1XN_BvLKQ9MNUgAmvKvU4pbU/edit?usp=sharing)
+  <br/> [ata](https://essvee.atabook.org/) | [github readme guide](https://docs.google.com/document/d/1v4RCIapGyuL-95DgdUr1XN_BvLKQ9MNUgAmvKvU4pbU/edit?usp=sharing) | [stamps n othr graphics](https://rentry.co/yoursoddly)
 <details>
   <summary> <sup><sub>lovemail</sub></sup> </summary>
  <div align="center">
