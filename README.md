@@ -15,7 +15,7 @@
   <summary> <sup><sub>lovemail</sub></sup> </summary>
  <div align="center">
 
-♡‧₊[<ins> fieesh </ins>](https://github.com/fieesh) [<ins> kaz </ins>](https://github.com/kazywazyy)[<ins> fox </ins>](https://github.com/ST0LL3NC0OK1E)[<ins> molly </ins>](https://github.com/crackpawt)[<ins> ribbons </ins>](https://github.com/CUTRIBBONS)[<ins> al </ins>](https://github.com/alveriri)[<ins> affection </ins>](https://github.com/puppypudding)
+♡‧₊[<ins> fieesh </ins>](https://github.com/fieesh) [<ins> kaz </ins>](https://github.com/kazywazyy)[<ins> fox </ins>](https://github.com/ST0LL3NC0OK1E)[<ins> molly </ins>](https://github.com/crackpawt)[<ins> kos </ins>](https://github.com/P0LARBLAST)[<ins> al </ins>](https://github.com/alveriri)[<ins> affection </ins>](https://github.com/puppypudding)
 <br/> no git but i love/p them too : ocea mok leia soju tatsu ame nat
 </div> </details>
 <br/> <img width="300" alt="borderbottom" src="https://github.com/user-attachments/assets/a7ae896d-4b74-4da8-8206-d13c1fbb36b4" /> <img alt="strawberry" src="https://github.com/user-attachments/assets/f3d33f87-d540-4114-9e69-12f3f6aaed23" /> <img width="300" alt="borderbottom" src="https://github.com/user-attachments/assets/a7ae896d-4b74-4da8-8206-d13c1fbb36b4" />
