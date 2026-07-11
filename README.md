@@ -7,7 +7,7 @@
   <br/> <img width="300" align= center alt="sccgraphic" src="https://github.com/user-attachments/assets/53045f18-bb0f-434b-87b1-4f0e0bd2ec80" />
   <br/> ![santafox button](https://github.com/user-attachments/assets/99028abb-7084-4174-9eb1-500107d12bc0)
   <br/> _vee_ ♪⋆.✮ oddly
-  <br/> : ̗̀➛ **all** . any prns
+  <br/> : ̗̀➛ **all** . any prns 。。chat bubbles off w2i
   <br/> c*h _unless_ dni . dncopy . <ins>covercomf</ins>
   <br/> basic dni + pro/dark shiprs
   <br/> [ata](https://essvee.atabook.org/) | [github readme guide](https://docs.google.com/document/d/1v4RCIapGyuL-95DgdUr1XN_BvLKQ9MNUgAmvKvU4pbU/edit?usp=sharing) | [stamps n othr graphics](https://rentry.co/yoursoddly)
